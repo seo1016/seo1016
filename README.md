@@ -1,5 +1,5 @@
 ## wwwww
-📑 [포트폴리오](ssh.baekjoon.kr)
+📑 [포트폴리오](https://alkaline-pound-c4c.notion.site/7586bf3eb0b94dfeb3a649846661d51a)
 
 📷 [인스타그램](https://www.instagram.com/ssh10_16/)
 
