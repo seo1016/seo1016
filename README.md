@@ -1,4 +1,7 @@
 ## wwwww
+📑 [포트폴리오](ssh.baekjoon.kr)
+
+📷 [인스타그램](https://www.instagram.com/ssh10_16/)
 
 <!--
 **seo1016/seo1016** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
