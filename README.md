@@ -1,5 +1,5 @@
 ## wwwww
-📑 [포트폴리오](https://alkaline-pound-c4c.notion.site/7586bf3eb0b94dfeb3a649846661d51a)
+📑 [포트폴리오](https://drive.google.com/file/d/1J7IkOXpqhdNi0jAOiOCJ9yfsrMrzSA9Y/view?usp=sharing)
 
 📷 [인스타그램](https://www.instagram.com/ssh10_16/)
 
