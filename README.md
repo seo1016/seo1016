@@ -1,5 +1,5 @@
 ## wwwww
-📑 [포트폴리오](https://drive.google.com/file/d/1J7IkOXpqhdNi0jAOiOCJ9yfsrMrzSA9Y/view?usp=sharing)
+📑 [포트폴리오](https://drive.google.com/file/d/1J7IkOXpqhdNi0jAOiOCJ9yfsrMrzSA9Y/view?usp=sharing) & [Resume](https://drive.google.com/file/d/11U4GJEVoVnfurs0AQ28HT2n4Jiba4ZuW/view?usp=sharing)
 
 📷 [인스타그램](https://www.instagram.com/ssh10_16/)
 
